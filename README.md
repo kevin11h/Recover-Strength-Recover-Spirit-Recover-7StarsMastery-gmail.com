@@ -1,0 +1,2 @@
+# Recover-Strength-Recover-Spirit-Recover-7StarsMastery-gmail.com
+Matthew 12:30-32: "Whoever is not with me is against me, and whoever does not gather with me scatters. And so I tell you, any sin and blasphemy can be forgiven. But blasphemy against the Spirit will not be forgiven. Anyone who speaks a word against the Son of Man will be forgiven, but anyone who speaks against the Holy Spirit will not be forgiven, either in this age or in the age to come."
